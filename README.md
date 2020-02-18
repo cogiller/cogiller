@@ -1,2 +1,0 @@
-# cogiller
-Mustafa Baduroğlu
